@@ -1,3 +1,3 @@
 # Graphic-design
-About some of my graphc design using Adobe Illustrator 😁✌
+About some of my graphic design using Adobe Illustrator 😁✌
 
